@@ -59,4 +59,4 @@ El crecimiento del uso de paneles solares en Mérida, Yucatán, ha sido exponenc
 - ☁️ Asegúrate de que tus sistemas estén siempre en óptimas condiciones.
 - 📊 Incrementa la durabilidad y eficiencia de tu inversión en energías limpias.
 
-🔗 Descarga la app o regístrate hoy mismo en **solex.com**.
+🔗 Descarga la app o regístrate hoy mismo en **soolex.com**.
